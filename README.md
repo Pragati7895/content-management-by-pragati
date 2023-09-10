@@ -1,1 +1,1 @@
-# Content-management-tool-by-Vishal-Katiyar
+# Content-management-tool-by-pragati-awasthi
